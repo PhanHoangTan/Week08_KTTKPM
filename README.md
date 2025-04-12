@@ -1,2 +1,0 @@
-# Week08_KTTKPM
-# Week08_KTTKPM
